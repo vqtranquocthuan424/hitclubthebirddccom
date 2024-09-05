@@ -15,4 +15,6 @@ Email: hitclub@thebirddc.com.
 
 Website: https://thebirddc.com/
 
+Author: https://thebirddc.com/author-fred-mcmane/
+
 #hitclub #hit #club #taihitclub #gamebaidoithuong #gamedoithuong #gamedanhbaidoithuong
